@@ -1,2 +1,1 @@
 # Intermediate_sogo
-あああああ
